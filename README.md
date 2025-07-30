@@ -1,1 +1,1 @@
-# Ajudecompix.
+# Ajudecompix
